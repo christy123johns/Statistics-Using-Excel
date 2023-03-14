@@ -20,3 +20,4 @@ Statistics using Excel Fuctions
 17. https://youtu.be/XXKFz-GxgS0
 18. https://youtu.be/ME0D24I96gc
 19. https://youtu.be/tWAT8-32B6A
+20. https://youtu.be/m3jYAyCVmPs
